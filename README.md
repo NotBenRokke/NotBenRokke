@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @NotBenRokke
-- 👀 I’m interested in ... asking my assitants to get me invited to peoples homes.
-- 🌱 I’m currently learning ... how to convince people that garlic and silver are bad for them.
-- 💞️ I’m looking to collaborate on ... SPF 1,000,000
+- 👀 I’m interested in ... asking my assitants to get me invited into to peoples homes.
+- 🌱 I’m currently learning ... how to convince people that garlic and silver are bad for them and that talking longs walks at night by themselves is good for them. 
+- 💞️ I’m looking to collaborate on ... Developing a lotion that is SPF 1,000,000 and smells like Apple Jax
 - 📫 How to reach me ... At night
 
 <!---
